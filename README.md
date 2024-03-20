@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @toxeekmeelk
+- 👀 I’m interested in CGM
+- 🌱 I’m currently learning Propellerhead Reason
+- 💞️ I’m looking to collaborate on anything that can improve reality
+- 📫 How to reach me : toxeekmeelk@gmail.com
